@@ -22,6 +22,6 @@
 - <a href="https://files.7ecnologia.com/aurora-v3.0.5s-release.exe"> Windows aurora-v3.0.5s-release.exe 下载链接2</a>
 - <a href="https://m.jsa1004.com/aurora-v3.0.3s-release.pkg"> Mac OS aurora-v3.0.3s-release.pkg 下载链接1</a>
 - <a href="https://files.7ecnologia.com/aurora-v3.0.3s-release.pkg"> Mac OS aurora-v3.0.3s-release.pkg 下载链接2</a>
-  <a href="https://www.youtube.com/channel/UCZ5yjvO4pjqBSTFptQ9GGfQ'>境外地址</a>
+  <a href="https://www.youtube.com/channel/UCZ5yjvO4pjqBSTFptQ9GGfQ">境外地址</a>
   
   请勿用于违法用途，在法律允许范围使用！
